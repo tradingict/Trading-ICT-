@@ -1,0 +1,2 @@
+# Trading-ICT-
+Trading community 
